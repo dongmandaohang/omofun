@@ -2,8 +2,9 @@
 <p>OmoFun动漫是一个专为动漫爱好者打造的综合性在线平台，提供海量的动漫资源和丰富的功能。该网站汇聚了全球范围内的热门动漫作品，包括日本新番、经典怀旧动画、欧美动画以及国漫等多种类型，满足不同用户的多样化需求。OmoFun动漫以高清画质播放为特色，支持多种清晰度选择，让用户享受影院级的观影体验。此外，网站还提供个性化推荐功能，根据用户的观看历史和偏好智能推荐相关作品，提升用户的追番体验。</p>
 <p>OmoFun动漫注重用户体验，界面设计简洁直观，操作便捷，用户无需繁琐注册即可轻松上手。同时，网站支持离线下载功能，用户可以将喜欢的作品下载到本地设备，随时随地观看。社区互动功能也是其一大亮点，用户可以在平台上与其他动漫迷交流心得，分享资源和感受。</p>
 <p>OmoFun动漫不仅资源丰富、更新及时，还通过多种功能优化了用户的观看体验，是动漫爱好者不可错过的优质平台。</p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/1587.html" target="_blank"><strong>oomofun动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://omofun.wwwnav.com/" target="_blank"><strong>omofun动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点</strong></p>
 <p><strong>海量动漫资源</strong><br>OmoFun动漫拥有庞大的动漫资源库，涵盖日漫、国漫、美漫等多种类型，满足不同用户的多样化需求。无论是最新热门番剧还是经典怀旧作品，用户都能在这里找到。</p>
